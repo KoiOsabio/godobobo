@@ -1,2 +1,0 @@
-# Alphaehtoxo
-elesofazmerda
